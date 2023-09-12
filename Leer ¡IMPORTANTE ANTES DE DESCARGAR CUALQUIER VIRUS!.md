@@ -1,4 +1,4 @@
-Leer ¡IMPORTANTE ANTES DE DESCARGAR CUALQUIER VIRUS!
+
 Español:
  Casi Todos Los Viruses Son completamente Inofensivos 
 ADVERTENCIA!: Hay algunos que son peligrosos por favor yo no soy culpable de cualquier virus peligroso (hay pocos pero porfavor no culparme) 
