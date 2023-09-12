@@ -16,3 +16,20 @@ Aqui Hare alguna lista de los virus mas peligrosos que hago (Top 10) se actualiz
 9
 10
 Gracias
+Ingles:
+Almost All Viruses Are Completely Harmless
+WARNING!: There are some that are dangerous please I am not guilty of any dangerous virus (there are few but please don't blame me)
+Some of them are simple to solve if you want, here is a link to a Worm (I have no idea how to remove it) but the rest are very easy, just restart your computer and that's it.
+
+Here I will make a list of the most dangerous viruses that I make (Top 10) the list is updated after 3 or 4 months
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+Thank you
