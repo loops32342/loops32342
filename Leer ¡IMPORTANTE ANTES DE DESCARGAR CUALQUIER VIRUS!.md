@@ -14,7 +14,7 @@ Aqui Hare alguna lista de los virus mas peligrosos que hago (Top 10) se actualiz
 7
 8
 9
-10
+10 Just shutting the pc off
 Gracias
 Ingles:
 Almost All Viruses Are Completely Harmless
